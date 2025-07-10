@@ -1,0 +1,1 @@
+Co-design Center for Quantum Advantage (C2QA) QIS 101: Foundations of Quantum Information Science 2025 Virtual Summer Workshop supported by Brookhaven National Laboratory (BNL) which commences on Monday, June 9 and concludes on Friday, July 18, 2025.
